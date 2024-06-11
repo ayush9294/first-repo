@@ -1,1 +1,1 @@
-ek din ma jayega cute ki maut
+ek din mar jayega cute ki maut
